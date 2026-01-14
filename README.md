@@ -41,7 +41,7 @@ Développeur web full-stack, j’accompagne les **PME, startups et entrepreneurs
 
 ## 🌐 Me retrouver ailleurs
 
-🔗 **Portfolio** : [https://jeremgabriel.com](https://jeremgabriel.com)
+🔗 **Portfolio** : [https://jeremygabriel.com](https://jeremygabriel.com)
 
 ---
 
